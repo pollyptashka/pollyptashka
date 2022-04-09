@@ -7,7 +7,7 @@
 I'm a MMF student who trying to do smth
 
 - 🇧🇾
-- ❤️ Good music (especcially rock 80-90), Tea Matcha, Summer days
+- ❤️ Good music (80-90s Rock), Tea Matcha, Summer days
 - 🎸 Playing guitar & 🎨 Drawing
 
 ## 👩 About me
