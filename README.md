@@ -12,4 +12,4 @@ I'm a MMF student who trying to do smth
 
 ## 👩 About me
 
-- Interested in Java
+- ☕️ Interested in Java
