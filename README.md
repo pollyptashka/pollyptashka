@@ -7,9 +7,9 @@
 I'm a MMF student who trying to do smth
 
 - 🇧🇾
-- ❤️ Good music (80-90s Rock), Tea Matcha, Summer days
-- 🎸 Playing guitar & 🎨 Drawing
+- ❤️ Good music (80-90s Rock), Tea Matcha, Summer days, Walking through abandoned places
+- 🎸 Playing guitar & 🎨 Drawing 
 
 ## 👩 About me
 
-- ☕️ Interested in Java
+- ☕️ Interested in Java, .NET, Unity
