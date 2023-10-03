@@ -12,4 +12,4 @@ I'm a MMF student who trying to do smth
 
 ## 👩 About me
 
-- ☕️ Interested in Java, .NET, Unity
+- ☕️ Interested in Java, Graphic Degign 2d/3d, Unity, C#
