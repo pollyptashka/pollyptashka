@@ -4,7 +4,7 @@
 
 # Hi, I'm Polly!
 
-I'm a MMF student who trying to do smth
+I'm a MMF student
 
 - 🇧🇾
 - ❤️ Good music (80-90s Rock), Green tea, Summer days, Walk in abandoned places
