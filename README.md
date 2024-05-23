@@ -4,12 +4,12 @@
 
 # Hi, I'm Polly!
 
-I'm a MMF student
+I'm a MMF BSU student
 
 - 🇧🇾
-- ❤️ Good music (80-90s Rock), Green tea, Summer days, Walk in abandoned places
+- ❤️ Good music, Green tea, Summer days, Walk in abandoned places
 - 🎸 Playing guitar & 🎨 Drawing 
 
 ## 👩 About me
 
-- ☕️ Interested in Java, Graphic Design 2d/3d, Unity, C#
+- ☕️ Interested in Java, Graphic Design 2D/3D, Unity, C#
